@@ -30,7 +30,7 @@ My work is focused on delivering reliable energy solutions and developing intell
 
 ## 📫 Contact
 - Email: `seyedsinasalehi.ee@gmail.com`  
-- LinkedIn: [https://www.linkedin.com/in/sina-salehi-8b56b7368]
+- LinkedIn: [Sina-Salehi](https://www.linkedin.com/in/sina-salehi-8b56b7368?) 
 
 ---
 
